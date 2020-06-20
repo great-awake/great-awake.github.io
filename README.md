@@ -16,3 +16,17 @@ The first cheatsheet to be released! Feel free to share this everywhere you thin
 
 ![The Great Awakening CheatSheet #1 - How To Think For Yourself v1.0.jpg](https://raw.githubusercontent.com/great-awake/great-awake.github.io/master/The%20Great%20Awakening%20CheatSheet%20%231%20-%20How%20To%20Think%20For%20Yourself%20v1.0.jpg)
 
+### Cheat Sheet #2: How To Stop Being Manipulated
+Coming Soon! 
+
+### Cheat Sheet #3: How To Do Your Own Research
+Coming Soon! 
+
+### Cheat Sheet #4: How To Get Off The MSM
+Coming Soon! 
+
+### Cheat Sheet #5: How To Red Pill Others
+Coming Soon! 
+
+### And so much more!
+...Coming Soon! 
